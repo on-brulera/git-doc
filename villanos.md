@@ -2,4 +2,4 @@
 
 * Dr. Doom
 * Red Skull
-* Dr. On Brulera
+* Capitan American
